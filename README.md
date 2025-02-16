@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there ヾ( ˃ᴗ˂ )◞ • *✰
 
 [![An image of @strwbrrishrtcke's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/strwbrrishrtcke)](https://holopin.io/@strwbrrishrtcke)
 
